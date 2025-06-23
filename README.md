@@ -77,8 +77,8 @@ letter – confirming full compliance with MCA regulations.
 
 Md Ripon Al Mamun
 📞 +8801880807962
-🔗 LinkedIn
-🔗 GitHub
+🔗 LinkedIn : https://github.com/riponalmamun
+🔗 GitHub : https://www.linkedin.com/in/mdriponalmamun/
 
 
 🧪 Evaluation Criteria Coverage
